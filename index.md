@@ -16,7 +16,7 @@ Wir stehen in der Tradition anderer 12 Schritte Gruppen, z.B. der [Erwachsenen K
 
 Obwohl wir eine separate Gruppe sind möchten wir immer mit anderen Gruppen, die das 12 Schritte Programm praktizieren, zusammen arbeiten.
 
-Link zur [Arbeitsmappe](https://docs.google.com/document/d/1moyCrTTUDl9o6cPfdPYNFCYT8RBHAiLgApUjtUlHVho/edit?usp=sharing)
+Link zur [Arbeitsmappe](arbeitsmappeEKE.pdf)
 
 Wir treffen uns jeden 2. Freitag im Monat von 19 bis 21 Uhr in Köln
 in der IDL e.V., Saarstrasse 22, 50677 Köln.
