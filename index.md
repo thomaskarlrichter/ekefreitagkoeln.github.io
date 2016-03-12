@@ -3,9 +3,9 @@ layout: default
 title: Homepage Erwachsene Kriegsenkel - eine 12-Schritte-Gruppe
 ---
 
-![EKE Schiffe](https://goo.gl/photos/7dZWJQiC5YgyL5Fi8)
+![EKE Schiffe](schiffe_eke.jpg)
 
-# Erwachsene Kriegsenkel
+# Wer wir sind
 
 Erwachsene Kriegsenkel sind eine Gemeinschaft von Männern und Frauen, die aufgrund der Traumatisierungen ihrer Eltern, die als Kinder den 2. Weltkrieg und/oder Diktatur, Verhaftung und Gefängnis in der Nazizeit, der SBZ, der DDR und/oder Flucht/Verteibung erlebt hatten, und deshalb in ihrer Herkunftsfamilie nicht die Liebe und Zuwendung bekommen haben, die für eine angemessene Entwicklung notwendig gewesen wäre. Es geht uns in der Gruppe um die Aufarbeitung der transgenerational weitergegebenen Traumafolgen in dysfunktionalen Gesellschaften bzw. Familiensystemen.
 
