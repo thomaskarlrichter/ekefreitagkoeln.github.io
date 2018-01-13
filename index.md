@@ -5,6 +5,11 @@ title: Homepage Erwachsene Kriegsenkel - eine 12-Schritte-Gruppe
 
 ![EKE Schiffe](schiffe_eke.jpg)
 
+# Aktuelles
+
+Der Termin am 9.2.2018 muss leider ausfallen. Wir treffen uns wieder am *9.3.2018 um 19 Uhr* in der IDL e.V. in der
+Saarstraße 22, in Köln.
+
 # Wer wir sind
 
 "Erwachsene Kriegsenkel" sind eine Gemeinschaft von Frauen und Männern, deren Eltern als Kinder den 2. Weltkrieg und/oder Diktatur, Verhaftung und Gefängnis in der Nazizeit, der SBZ, der DDR und/oder Flucht/Vertreibung erlebten und dadurch traumatisiert wurden. Deshalb konnten wir von unseren Eltern nicht die Liebe und Zuwendung bekommen, die für unsere angemessene Entwicklung notwendig gewesen wäre. Es geht uns in der Gruppe um die Aufarbeitung der transgenerational weitergegebenen Traumafolgen in dysfunktionalen Familiensystemen bzw. Gesellschaften.
